@@ -1,5 +1,5 @@
 - Hi, I’m @notUnknuffig :3
-- I’m interested in Programming in all Language OwO
+- I’m interested in Programming in all Languages OwO
 - I’m currently learning Java UwU
 - I’m looking to collaborate on nothing
 - How to reach me? Don't even try it... I won't respond anyway.
